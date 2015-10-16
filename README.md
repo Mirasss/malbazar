@@ -1,2 +1,2 @@
 # malbazar
-Pako mal, e pako davai reshe!
+С телефона пдц  не удобно я ебу,тюлень 
