@@ -1,2 +1,2 @@
 # malbazar
-Pako mal
+Pako mal, e pako davai reshe!
