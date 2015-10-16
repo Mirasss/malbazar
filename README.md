@@ -1,2 +1,2 @@
 # malbazar
-Pako mal, e pako davai reshe!
+blya otrazilis izmeneniya moi ili net???
